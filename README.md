@@ -1,2 +1,1 @@
 # IvanaBelleri.github.io
-Competition
